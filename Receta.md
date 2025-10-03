@@ -24,3 +24,5 @@
 
 3\. Batir los huevos con sal.
 
+4\. Añadir las patatas y la cebolla a los huevos batidos.
+
